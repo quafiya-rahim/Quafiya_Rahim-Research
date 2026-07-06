@@ -15,4 +15,4 @@ A collection of my research and analytical reports covering Indian financial mar
 ## 📫 Contact
 
 - Email: quafiya9119@gmail.com
-- LinkedIn: [your-linkedin](www.linkedin.com/in/quafiya-rahim)
+- LinkedIn: (https://www.linkedin.com/in/quafiya-rahim/)
